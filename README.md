@@ -1,0 +1,1 @@
+# pausiber gi hub eğitiminekatıldım.
